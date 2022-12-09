@@ -1,2 +1,0 @@
-# kamigames
-free games
